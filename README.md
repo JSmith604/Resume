@@ -1,5 +1,5 @@
 # Profile Information
 
-Here is a link to my live resume on Creddle and my LinkedIN profile. Please email me if you have any questions.
+Here is a link to my LinkedIN profile. Please email me if you have any questions.
 
 [LinkedIn](https://www.linkedin.com/in/jacqueline-smith-131a54197/)
